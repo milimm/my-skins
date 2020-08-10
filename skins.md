@@ -12,9 +12,9 @@
 
 
 # shinji 
-*private sry, the skin isnt mine*
+*private sorry, the skin isnt mine*
  ![](https://osu.ppy.sh/ss/15370331/5058)
 
 
-#[SameSkinButNoFollowpoint edit](https://www.dropbox.com/s/g4jfjislluz4fro/SameSkinButNoFollowpoint%20edit.osk?dl=0)
+# [SameSkinButNoFollowpoint edit](https://www.dropbox.com/s/g4jfjislluz4fro/SameSkinButNoFollowpoint%20edit.osk?dl=0)
 ![](https://osu.ppy.sh/ss/15370348/8e62)
