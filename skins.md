@@ -7,4 +7,4 @@
 ![](https://osu.ppy.sh/ss/15370281/18eb)
 
 
-# [shdewz v12](https://www.dropbox.com/s/21fkb30xa5xcd51/shdewz%20v12.osk?dl=0) !![] (https://osu.ppy.sh/ss/15370321/9af0)
+# [shdewz v12](https://www.dropbox.com/s/21fkb30xa5xcd51/shdewz%20v12.osk?dl=0) ![] (https://osu.ppy.sh/ss/15370321/9af0)
