@@ -1,6 +1,6 @@
 
 
-# skins that i use sometimes (mostly using twintail edit)
+# skins that i use (mostly using twintail edit)
 
 
 # [twintail edit](https://www.dropbox.com/s/opllmvs16cfs3gr/twintail%20edit.osk?dl=0)
