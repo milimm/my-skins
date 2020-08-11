@@ -4,7 +4,7 @@
 
 
 # [twintail+milim](https://www.dropbox.com/s/dbpkxobkoatv4fn/twintail%2Bmilim.osk?dl=0)
-*loud hitsounds
+*loud hitsounds*
 ![](https://osu.ppy.sh/ss/15373008/1daf)
 
 
