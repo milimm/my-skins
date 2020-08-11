@@ -3,8 +3,9 @@
 # skins that i use (mostly using twintail edit)
 
 
-# [twintail edit](https://www.dropbox.com/s/opllmvs16cfs3gr/twintail%20edit.osk?dl=0)
-![](https://osu.ppy.sh/ss/15370281/18eb)
+# [twintail edit]
+*0.7x cursor size(https://www.dropbox.com/s/8cmlwpme6ojwku7/twintail%20milim%20edit.osk?dl=0)
+![](https://osu.ppy.sh/ss/15373008/1daf)
 
 
 # [shdewz v12](https://www.dropbox.com/s/21fkb30xa5xcd51/shdewz%20v12.osk?dl=0)
