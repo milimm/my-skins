@@ -3,8 +3,8 @@
 # skins that i use (mostly using twintail edit)
 
 
-# [twintail edit](https://www.dropbox.com/s/8cmlwpme6ojwku7/twintail%20milim%20edit.osk?dl=0)
-*0.7x cursor size
+# [twintail+milim](https://www.dropbox.com/s/dbpkxobkoatv4fn/twintail%2Bmilim.osk?dl=0)
+*loud hitsounds
 ![](https://osu.ppy.sh/ss/15373008/1daf)
 
 
