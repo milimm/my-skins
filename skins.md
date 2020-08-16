@@ -7,7 +7,7 @@
 *loud hitsounds*
 ![](https://osu.ppy.sh/ss/15400529/d4ea)
 
-# [rizer](https://www.dropbox.com/s/21fkb30xa5xcd51/shdewz%20v12.osk?dl=0)
+# [rizer](https://www.dropbox.com/s/xfcmkq385g0lg3e/rizer.osk?dl=0)
 ![](https://osu.ppy.sh/ss/15400526/a5ca)
 
 # [theez](https://theez.s-ul.eu/zHf87Cod)
