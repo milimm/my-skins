@@ -16,6 +16,8 @@
 # [theez](https://theez.s-ul.eu/zHf87Cod)
 ![](https://osu.gatari.pw/ss/E6K1E7UO.jpg)
 
+# [kablaze](http://kablaze.u.catgirlsare.sexy/pT-bgwJK.osk) 
+![](https://osu.ppy.sh/ss/15427904/e9c6)
 
 # shinji 
 *private sorry, the skin isnt mine*
