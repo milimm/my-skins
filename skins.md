@@ -22,3 +22,6 @@
 # shinji 
 *private sorry, the skin isnt mine*
  ![](https://osu.ppy.sh/ss/15370331/5058)
+
+# [redpixel](https://www.dropbox.com/s/tr9p2j90zaoda03/redpixel.osk?dl=0)
+![](https://osu.ppy.sh/ss/15455783/0d17)
