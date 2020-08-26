@@ -13,6 +13,9 @@
 # [rizer+aristia edit](https://www.dropbox.com/s/k1ux7h8ilyrsic6/rizer%2Baristia%20edit.osk?dl=0)
 ![](https://osu.ppy.sh/ss/15406057/ff7c)
 
+# [redpixel](https://www.dropbox.com/s/tr9p2j90zaoda03/redpixel.osk?dl=0)
+![](https://osu.ppy.sh/ss/15455783/0d17)
+
 # [theez](https://theez.s-ul.eu/zHf87Cod)
 ![](https://osu.gatari.pw/ss/E6K1E7UO.jpg)
 
@@ -22,6 +25,3 @@
 # shinji 
 *private sorry, the skin isnt mine*
  ![](https://osu.ppy.sh/ss/15370331/5058)
-
-# [redpixel](https://www.dropbox.com/s/tr9p2j90zaoda03/redpixel.osk?dl=0)
-![](https://osu.ppy.sh/ss/15455783/0d17)
