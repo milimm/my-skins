@@ -2,7 +2,7 @@
 
 # skins that i use
 
-#[milim](https://osu.ppy.sh/ss/15464134/f0c5)
+# [milim](https://osu.ppy.sh/ss/15464134/f0c5)
 ![](https://www.dropbox.com/s/v6p1svr0rymtrea/milim.osk?dl=0)
 
 
