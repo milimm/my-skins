@@ -7,6 +7,5 @@
 
 
 # [bucetinha fofa](https://cdn.discordapp.com/attachments/768595592422752256/778017172953759774/bucetinha_fofa.osk)
-*loud hitsounds*
 ![](https://cdn.discordapp.com/attachments/768595592422752256/778017048483069962/7b1f.png)
 
