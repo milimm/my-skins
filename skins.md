@@ -10,5 +10,5 @@
 ![](https://cdn.discordapp.com/attachments/768595592422752256/778017048483069962/7b1f.png)
 
 # [enumi tournament ver](https://cdn.discordapp.com/attachments/768595592422752256/778018478954250261/enumi_tournament_ver.osk)
-![] (https://cdn.discordapp.com/attachments/768595592422752256/778018219545722891/f00d.png)
+![](https://cdn.discordapp.com/attachments/768595592422752256/778018219545722891/f00d.png)
 
