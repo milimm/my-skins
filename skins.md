@@ -9,6 +9,6 @@
 # [bucetinha fofa](https://cdn.discordapp.com/attachments/768595592422752256/778017172953759774/bucetinha_fofa.osk)
 ![](https://cdn.discordapp.com/attachments/768595592422752256/778017048483069962/7b1f.png)
 
-# [enumi tournament ver](https://cdn.discordapp.com/attachments/768595592422752256/778018478954250261/enumi_tournament_ver.osk)
+# [enumi tournament ver](https://drive.google.com/file/d/1qJD67gTUajJXEaWH5Is1hfPDIXj8X2l-/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/768595592422752256/778018219545722891/f00d.png)
 
