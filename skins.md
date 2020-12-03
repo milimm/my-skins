@@ -2,13 +2,8 @@
 
 # skins that i use
 
-# [buceta boba](https://cdn.discordapp.com/attachments/768595592422752256/778017623018700839/buceta_boba.osk)
-![](https://cdn.discordapp.com/attachments/768595592422752256/778017558980329472/e5a1.png)
+# [hvick milim edit](https://cdn.discordapp.com/attachments/768595592422752256/783271257839894558/hvick_milim_edit.osk)
+![](https://osu.ppy.sh/ss/15889461/5517)
 
-
-# [bucetinha fofa](https://cdn.discordapp.com/attachments/768595592422752256/778017172953759774/bucetinha_fofa.osk)
-![](https://cdn.discordapp.com/attachments/768595592422752256/778017048483069962/7b1f.png)
-
-# [enumi tournament ver](https://drive.google.com/file/d/1qJD67gTUajJXEaWH5Is1hfPDIXj8X2l-/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/768595592422752256/778018219545722891/f00d.png)
-
+# [dark private milim attempt](https://milinho.s-ul.eu/w3WskY5o)
+![](https://osu.ppy.sh/ss/15889425/bb17)
