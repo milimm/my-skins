@@ -8,4 +8,8 @@
 # [tko](https://drive.google.com/file/d/1Hcu6NvzaKJqPLZ3CKF7GSfJtfhK4QXKp/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15932770/f822)
 
-# [khan mix]
+# [khan mix](https://milinho.s-ul.eu/Gyp4tEnm)
+![](https://osu.ppy.sh/ss/16022550/84e0)
+
+# [varvalian upside down]()
+![](https://osu.ppy.sh/ss/16022556/39be)
