@@ -13,9 +13,3 @@
 
 # [tko](https://drive.google.com/file/d/1Hcu6NvzaKJqPLZ3CKF7GSfJtfhK4QXKp/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15932770/f822)
-
-# [khan mix](https://milinho.s-ul.eu/fU0Lz0QV)
-![](https://osu.ppy.sh/ss/16022550/84e0)
-
-# [varvalian upside down](https://milinho.s-ul.eu/eyp1w42V)
-![](https://osu.ppy.sh/ss/16022556/39be)
