@@ -1,7 +1,4 @@
 
-
-# skins that i use (im always changing)
-
 # [milim+ameliorate](https://milinho.s-ul.eu/3Yw0XRRg)
 ![](https://osu.ppy.sh/ss/16148054/e785)
 
