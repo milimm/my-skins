@@ -1,4 +1,4 @@
-# [bloo edit (main skin)]()
+# [bloo edit (main skin)](https://milinho.s-ul.eu/isaQsL87)
 ![](https://osu.ppy.sh/ss/16210158/9f6f)
 
 # [A21](https://drive.google.com/file/d/1dyGTu5rU7xprmYkIETI1AYmWqDuWHNkD/view?usp=sharing)
