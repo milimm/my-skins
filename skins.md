@@ -1,7 +1,7 @@
 # [Natsusaki Yomi](https://milinho.s-ul.eu/TTJjpnEj)
 ![](https://cdn.discordapp.com/attachments/716098643505184849/847292352196116501/unknown.png)
 
-# [Natsusaki Yomi + Rizer+Yaong (currently main)](https://milinho.s-ul.eu/2gIaNgo2)
+# [Natsusaki Yomi + Rizer+Yaong (currently main)](https://milinho.s-ul.eu/DjvKaMY7)
 ![](https://osu.ppy.sh/ss/16673910/96d7)
 
 # [Natsusaki Yomi + Aristia](https://milinho.s-ul.eu/ilatldej)
