@@ -1,16 +1,16 @@
 # [milimskin](https://milinho.s-ul.eu/ZFWRtctP)
 ![](https://media.discordapp.net/attachments/745632745128067192/890457377084674068/screenshot468.jpg?width=1202&height=676)
 
-#[ShigeButChanged](https://milinho.s-ul.eu/7eP2UZcz)
+# [ShigeButChanged](https://milinho.s-ul.eu/7eP2UZcz)
 ![](https://media.discordapp.net/attachments/745632745128067192/890457085412790292/screenshot466.jpg?width=1202&height=676)
 
-#[ShigeButChangedButChanged](https://milinho.s-ul.eu/hYjpBGaT)
+# [ShigeButChangedButChanged](https://milinho.s-ul.eu/hYjpBGaT)
 ![](https://media.discordapp.net/attachments/745632745128067192/890457242497859594/screenshot467.jpg?width=1202&height=676)
 
-#[skill (for hr)](https://milinho.s-ul.eu/xBlymi1Z)
+# [skill (for hr)](https://milinho.s-ul.eu/xBlymi1Z)
 ![](https://media.discordapp.net/attachments/745632745128067192/890460114845319198/screenshot471.jpg?width=1202&height=676)
 
-#[surv (for dt)](https://milinho.s-ul.eu/qTBbOGui)
+# [surv (for dt)](https://milinho.s-ul.eu/qTBbOGui)
 ![](https://media.discordapp.net/attachments/745632745128067192/890460335100813362/screenshot473.jpg?width=1202&height=676)
 
 # [Natsusaki Yomi](https://milinho.s-ul.eu/TTJjpnEj)
